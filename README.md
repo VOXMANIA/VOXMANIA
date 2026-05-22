@@ -12,7 +12,7 @@
 
 ⋆˚ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington ⋆.˚
 
-⋆˚ HELLAVERSE :: the Vees, Alastor, Adam, Fizzarolli ⋆.˚
+⋆˚ HELLAVERSE :: the Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli ⋆.˚
 
 ⋆˚ ARCANE :: Jinx, Silco ⋆.˚
 
@@ -24,18 +24,20 @@
 
 ⋆˚ FNaF :: William Afton, Foxy, Lolbit, Ballora, SpringTrap ⋆.˚ 
 
-⋆˚ SOUTH PARK :: Eric Cartman, Mr. Garrison ⋆.˚
+⋆˚ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny ⋆.˚
 
-⋆˚ FORSAKEN :: Mafioso ⋆.˚
+⋆˚ FORSAKEN :: Mafioso, Noli, C00LKIDD ⋆.˚
 
 ⋆˚ TADC :: Jax, Caine ⋆.˚
 
-⋆˚ MLP :: Princess Luna ⋆.˚
+⋆˚ MLP :: Princess Luna, Rainbow Dash ⋆.˚
 
 ⋆˚ ETM :: Zeus, Poseidon, Hermes, Circe, Telemachus ⋆.˚
 
 ⋆˚ BLUEY :: Bandit, Chili, Grandad, Stripe, Radley, the Heeler brother's parents ⋆.˚
 
-⋆˚ The Walking Dead :: Rick Grimes ⋆.˚
+⋆˚ THE WALKING DEAD :: Rick Grimes ⋆.˚
 
-⋆˚ Family Guy :: Brian Griffin, Stewie Griffin, Peter Griffin, Quagmire ⋆.˚
+⋆˚ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin, Quagmire ⋆.˚
+
+⋆˚ THE LION KING :: Scar, Mufasa, Simba, the Hyenas, Zazu, Rafiki ⋆.˚
