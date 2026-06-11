@@ -1,14 +1,16 @@
 <img width="720" height="387" alt="Image" src="https://github.com/user-attachments/assets/bdc0c93e-bd84-4409-91f2-c95f2cd8ebf4" />
 
-──── 🪼 ────
+──── 🏳️‍🌈 ────
 
-𐔌 ,, ‼️ ⋮ More info about me is linked to my account .ᐟ ₊ ꒱
+𐔌 ‼️ ⋮ More info about me is linked to my account .ᐟ ₊ ꒱
 
 ⋆˚ KINS :: Vox, Valentino, Captain Jack Sparrow, Octavia Goetia ⋆.˚
 
-──── 🪼 ────
+⋆˚ 🪓 :: Please DNIUF/IWVEC if you yume with Vox, Valentino, or CJS, as it doesn't sit well with me ⋆.˚
 
-𐔌 ,, 🌊 ⋮ Favorites .ᐟ ₊ ꒱ 
+──── 🏳️‍🌈 ────
+
+𐔌 🌹 ⋮ Favorites .ᐟ ₊ ꒱ 
 
 ⋆˚ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington ⋆.˚
 
@@ -24,7 +26,7 @@
 
 ⋆˚ FNaF :: William Afton, Foxy, Lolbit, Ballora, SpringTrap ⋆.˚ 
 
-⋆˚ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny ⋆.˚
+⋆˚ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny McCormick ⋆.˚
 
 ⋆˚ FORSAKEN :: Mafioso, Noli, C00LKIDD ⋆.˚
 
@@ -38,6 +40,6 @@
 
 ⋆˚ THE WALKING DEAD :: Rick Grimes ⋆.˚
 
-⋆˚ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin, Quagmire ⋆.˚
+⋆˚ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin ⋆.˚
 
 ⋆˚ THE LION KING :: Scar, Mufasa, Simba, the Hyenas, Zazu, Rafiki ⋆.˚
