@@ -6,7 +6,7 @@
 
 ⋆˚ KINS :: Vox, Valentino, Captain Jack Sparrow, Octavia Goetia ⋆.˚
 
-⋆˚ 🪓 :: Please DNIUF/IWVEC if you yume with Vox, Valentino, or CJS, as it doesn't sit well with me ⋆.˚
+⋆˚ 🪓 :: Please DNIUF/IWVEC if you yume with Vox, Valentino, or CJS, as it doesn't sit well with me. Vox & Valentino ships please IWVECUF ⋆.˚
 
 ──── 🏳️‍🌈 ────
 
