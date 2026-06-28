@@ -4,7 +4,7 @@
 
 𐔌 ‼️ ⋮ More info about me is linked to my account .ᐟ ₊ ꒱
 
-⋆˚ KINS :: Vox, Valentino, Captain Jack Sparrow, Octavia Goetia ⋆.˚
+⋆˚ KINS :: Vox, Valentino, Captain Jack Sparrow, Octavia Goetia, Vaggi, Jinx, Charlie Morningstar ⋆.˚
 
 ⋆˚ 🪓 :: Please DNIUF/IWVEC if you yume with Vox, Valentino, or CJS, as it doesn't sit well with me. Vox & Valentino ships please IWVECUF ⋆.˚
 
@@ -14,7 +14,7 @@
 
 ⋆˚ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington ⋆.˚
 
-⋆˚ HELLAVERSE :: the Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli ⋆.˚
+⋆˚ HELLAVERSE :: The Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli ⋆.˚
 
 ⋆˚ ARCANE :: Jinx, Silco ⋆.˚
 
