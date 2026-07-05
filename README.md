@@ -1,45 +1,53 @@
 <img width="720" height="387" alt="Image" src="https://github.com/user-attachments/assets/bdc0c93e-bd84-4409-91f2-c95f2cd8ebf4" />
 
-──── 🏳️‍🌈 ────
+⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
-𐔌 ‼️ ⋮ More info about me is linked to my account .ᐟ ₊ ꒱
+‼️﹕𐔌・Better information about me is linked to my account 〃・꒱
 
-⋆˚ KINS :: Vox, Valentino, Captain Jack Sparrow, Octavia Goetia, Vaggi, Jinx, Charlie Morningstar ⋆.˚
+✦ ₊ KINS :: Vox (Fictkin) . Captain Jack Sparrow (Fictkin) . Vaggi (Heavy-Kin) . Charlie Morningstar (Kin) . Octavia Goetia (Heavy-Kin)
 
-⋆˚ 🪓 :: Please DNIUF/IWVEC if you yume with Vox, Valentino, or CJS, as it doesn't sit well with me. Vox & Valentino ships please IWVECUF ⋆.˚
+✦ ₊ EXTRA :: Valentino (Synpath?) . Alastor (Synpath)
 
-──── 🏳️‍🌈 ────
+✦ ₊  Please DNIUF if you yume with a canon character, as I don't feel comfortable shipping a character with someone's OC unless I know you.
 
-𐔌 🌹 ⋮ Favorites .ᐟ ₊ ꒱ 
+✦ ₊ Vox fictkins iwecuf , CJS fictkins iwecuf
 
-⋆˚ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington ⋆.˚
+⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
-⋆˚ HELLAVERSE :: The Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli ⋆.˚
+📜﹕𐔌・Favorites 〃・꒱
 
-⋆˚ ARCANE :: Jinx, Silco ⋆.˚
+✦ ₊ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington
 
-⋆˚ DEADPOOL :: Deadpool ⋆.˚ 
+✦ ₊ HELLAVERSE :: The Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli
 
-⋆˚ PUSS IN BOOTS :: Kitty Softpaws ⋆.˚
+✦ ₊ ARCANE :: Jinx, Silco
 
-⋆˚ MHA/BNHA :: Shota Aizawa, Hizashi Yamada / Present Mic, Dabi / Touya Todoroki , Tomura Shigaraki / Tenko Shimura ⋆.˚ 
+✦ ₊ DEADPOOL :: Deadpool
 
-⋆˚ FNaF :: William Afton, Foxy, Lolbit, Ballora, SpringTrap ⋆.˚ 
+✦ ₊ PUSS IN BOOTS :: Kitty Softpaws
 
-⋆˚ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny McCormick ⋆.˚
+✦ ₊ MHA/BNHA :: Shota Aizawa, Hizashi Yamada / Present Mic, Dabi / Touya Todoroki , Tomura Shigaraki / Tenko Shimura
 
-⋆˚ FORSAKEN :: Mafioso, Noli, C00LKIDD ⋆.˚
+✦ ₊ FNaF :: William Afton, Foxy, Lolbit, Ballora, SpringTrap
 
-⋆˚ TADC :: Jax, Caine ⋆.˚
+✦ ₊ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny McCormick
 
-⋆˚ MLP :: Princess Luna, Rainbow Dash ⋆.˚
+✦ ₊ FORSAKEN :: Mafioso, Noli, C00LKIDD
 
-⋆˚ ETM :: Zeus, Poseidon, Hermes, Circe, Telemachus ⋆.˚
+✦ ₊ TADC :: Jax, Caine
 
-⋆˚ BLUEY :: Bandit, Chili, Grandad, Stripe, Radley, the Heeler brother's parents ⋆.˚
+✦ ₊ MLP :: Princess Luna, Rainbow Dash
 
-⋆˚ THE WALKING DEAD :: Rick Grimes ⋆.˚
+✦ ₊ E:TM :: Zeus, Poseidon, Hermes, Circe, Telemachus
 
-⋆˚ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin ⋆.˚
+✦ ₊ BLUEY :: Bandit, Chili, Grandad, Stripe, Radley, the Heeler brother's parents
 
-⋆˚ THE LION KING :: Scar, Mufasa, Simba, the Hyenas, Zazu, Rafiki ⋆.˚
+✦ ₊ THE WALKING DEAD :: Rick Grimes
+
+✦ ₊ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin
+
+✦ ₊ THE LION KING :: Scar, Mufasa, Simba, the Hyenas, Zazu, Rafiki
+
+⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
+
+✦ ₊ COMFORT CHARACTERS :: Captain Jack Sparrow, Captain Edward Teague, Vox, Valentino, Alastor, Silco, Bandit, Scar, Mafioso
