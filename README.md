@@ -6,11 +6,11 @@
 
 ✦ ₊ KINS :: Vox (Fictkin) . Captain Jack Sparrow (Fictkin) . Vaggi (Heavy-Kin) . Charlie Morningstar (Kin) . Octavia Goetia (Heavy-Kin)
 
-✦ ₊ EXTRA :: Valentino (Synpath?) . Alastor (Synpath)
+✦ ₊ EXTRA :: Valentino (Synpath)
 
 ✦ ₊  Please DNIUF if you yume with a canon character, as I don't feel comfortable shipping a character with someone's OC unless I know you.
 
-✦ ₊ Vox fictkins iwecuf , CJS fictkins iwecuf
+✦ ₊ Fictkin doubles iwecuf
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
