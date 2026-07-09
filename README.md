@@ -4,11 +4,9 @@
 
 ‼️﹕𐔌・Better information about me is linked to my account 〃・꒱
 
-✦ ₊ KINS :: Vox (Fictkin) . Captain Jack Sparrow (Fictkin) . Vaggi (Heavy-Kin) . Charlie Morningstar (Kin) . Octavia Goetia (Heavy-Kin)
+✦ ₊ KINS :: Vox (Fictkin) . Captain Jack Sparrow (Fictkin) . Vaggi (Heavy-Kin) . Charlie Morningstar (Kin) . Octavia Goetia (Heavy-Kin) . Valentino (Kin)
 
-✦ ₊ EXTRA :: Valentino (Synpath)
-
-✦ ₊  Please DNIUF if you yume with a canon character, as I don't feel comfortable shipping a character with someone's OC unless I know you.
+✦ ₊  Please DNIUF/DNIUID if you yume with a canon character. I personally feel uncomfortable when I see someone ship their OC with a canon character, no matter what the character is. This is just my opinion. Thanks babes!
 
 ✦ ₊ Fictkin doubles iwecuf
 
