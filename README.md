@@ -2,50 +2,50 @@
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
-‼️﹕𐔌・Better information about me is linked to my account 〃・꒱
+𐂯 _ Better information is linked to my account . ⟢
 
-✦ ₊ KINS :: Vox (Fictkin) . Captain Jack Sparrow (Fictkin) . Vaggi (Heavy-Kin) . Charlie Morningstar (Kin) . Octavia Goetia (Heavy-Kin) . Valentino (Kin)
+➜ KINS :: Vox (Fictkin) . Captain Jack Sparrow (Fictkin) . Vaggi (Heavy-Kin) . Charlie Morningstar (Kin) . Octavia Goetia (Heavy-Kin) . Valentino (Kin)
 
-✦ ₊  Please DNIUF/DNIUID if you yume with a canon character. I personally feel uncomfortable when I see someone ship their OC with a canon character, no matter what the character is. This is just my opinion. Thanks babes!
+➜ Please DNIUF/DNIUID if you yume with a canon character. I feel uncomfortable when I see someone ship their OC or themselves with a canon character, no matter who it is. This is my opinion. Thanks babes!
 
-✦ ₊ Fictkin doubles iwecuf
-
-⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
-
-📜﹕𐔌・Favorites 〃・꒱
-
-✦ ₊ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington
-
-✦ ₊ HELLAVERSE :: The Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli
-
-✦ ₊ ARCANE :: Jinx, Silco
-
-✦ ₊ DEADPOOL :: Deadpool
-
-✦ ₊ PUSS IN BOOTS :: Kitty Softpaws
-
-✦ ₊ MHA/BNHA :: Shota Aizawa, Hizashi Yamada / Present Mic, Dabi / Touya Todoroki , Tomura Shigaraki / Tenko Shimura
-
-✦ ₊ FNaF :: William Afton, Foxy, Lolbit, Ballora, SpringTrap
-
-✦ ₊ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny McCormick
-
-✦ ₊ FORSAKEN :: Mafioso, Noli, C00LKIDD
-
-✦ ₊ TADC :: Jax, Caine
-
-✦ ₊ MLP :: Princess Luna, Rainbow Dash
-
-✦ ₊ E:TM :: Zeus, Poseidon, Hermes, Circe, Telemachus
-
-✦ ₊ BLUEY :: Bandit, Chili, Grandad, Stripe, Radley, the Heeler brother's parents
-
-✦ ₊ THE WALKING DEAD :: Rick Grimes
-
-✦ ₊ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin
-
-✦ ₊ THE LION KING :: Scar, Mufasa, Simba, the Hyenas, Zazu, Rafiki
+➜ Fictkin doubles iwecuf
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
-✦ ₊ COMFORT CHARACTERS :: Captain Jack Sparrow, Captain Edward Teague, Vox, Valentino, Alastor, Silco, Bandit, Scar, Mafioso
+𐂯 _ Favorites . ⟢
+
+➜ POTC :: Captain Jack Sparrow, Angelica Teach, Captain Edward Teague, Captain Hector Barbossa, Admiral James Norrington
+
+➜ HELLAVERSE :: The Vees, Shock.wav, Alastor, Adam, Abel, Fizzarolli
+
+➜ ARCANE :: Jinx, Silco
+
+➜ DEADPOOL :: Deadpool
+
+➜ PUSS IN BOOTS :: Kitty Softpaws
+
+➜ MHA/BNHA :: Shota Aizawa, Hizashi Yamada / Present Mic, Dabi / Touya Todoroki , Tomura Shigaraki / Tenko Shimura
+
+➜ FNaF :: William Afton, Foxy, Lolbit, Ballora, SpringTrap
+
+➜ SOUTH PARK :: Eric Cartman, Mr. Garrison, Kenny McCormick
+
+➜ FORSAKEN :: Mafioso, Noli, C00LKIDD
+
+➜ TADC :: Jax, Caine
+
+➜ MLP :: Princess Luna, Rainbow Dash
+
+➜ E:TM :: Zeus, Poseidon, Hermes, Circe, Telemachus
+
+➜ BLUEY :: Bandit, Chili, Grandad, Stripe, Radley, the Heeler brother's parents
+
+➜ THE WALKING DEAD :: Rick Grimes
+
+➜ FAMILY GUY :: Brian Griffin, Stewie Griffin, Peter Griffin
+
+➜ THE LION KING :: Scar, Mufasa, Simba, the Hyenas, Zazu, Rafiki
+
+⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
+
+➜ COMFORT CHARACTERS :: Captain Jack Sparrow, Captain Edward Teague, Vox, Valentino, Alastor, Silco, Bandit, Scar, Mafioso
