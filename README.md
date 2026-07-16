@@ -32,7 +32,7 @@
 
 ➜ FORSAKEN :: Mafioso, Noli, C00LKIDD
 
-➜ TADC :: Jax, Caine
+➜ TADC :: Kinger, Jax, Zooble, Caine
 
 ➜ MLP :: Princess Luna, Rainbow Dash
 
