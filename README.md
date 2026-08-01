@@ -12,7 +12,7 @@
 
 ꜱᴇʟꜰ-ᴘʀᴏᴄʟᴀɪᴍᴇᴅ ɴᴜᴍʙᴇʀ 1 ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ ᴄᴇᴏ
 
-ᴘᴏɴʏᴛᴏᴡɴꜱ ᴠᴏx ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ @pt-walk-of-fame @pt-contributors
+ᴘᴏɴʏᴛᴏᴡɴꜱ ᴠᴏx ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ @pt-walk-of-fame @pt-contributors @pt-hall-of-media
 
 ᴍɪɴᴏʀ . 18+ ᴅɴɪᴜɪᴅ . 15- ᴅɴɪ
 
