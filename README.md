@@ -1,6 +1,6 @@
-" 𝘼𝙡𝙡 𝙩𝙝𝙞𝙨 𝙩𝙞𝙢𝙚 𝙄'𝙫𝙚 𝘄𝗼𝗻𝗱𝗲𝗿𝗲𝗱, 𝙞𝙛 𝙮𝙤𝙪'𝙙 𝙚𝙢𝙗𝙧𝙖𝙘𝙚 𝙢𝙚 𝙖𝙨 𝘆𝗼𝘂𝗿 𝗼𝘄𝗻. 7 𝙮𝙚𝙖𝙧𝙨 𝙄'𝙫𝙚 𝘄𝗼𝗻𝗱𝗲𝗿𝗲𝗱, 𝙖𝙣𝙙 𝙛𝙤𝙧 𝙨𝙤 𝙡𝙤𝙣𝙜 𝙄 𝙛𝙚𝙡𝙩 𝗮𝗹𝗼𝗻𝗲. "
+" 𝙋𝙧𝙤𝙩𝙚𝙘𝙩𝙞𝙣𝙜 𝙩𝙝𝙚 𝙜𝙤𝙤𝙙 𝘾𝙤𝙤𝙠𝙞𝙚𝙨 𝙞𝙣 𝙤𝙪𝙧 𝙠𝙞𝙣𝙜𝙙𝙤𝙢 𝙞𝙨 𝙢𝙮 𝙙𝙪𝙩𝙮. "
 
-<img width="720" height="704" alt="Image" src="https://github.com/user-attachments/assets/25d61a10-86fc-43f6-8f7e-2c4c31bfc61c" />
+<img width="720" height="418" alt="Image" src="https://github.com/user-attachments/assets/bc76e8e8-f6d6-4264-b5e4-ccaccd517e75" />
 
 ════════════════════
 
@@ -70,6 +70,6 @@
 
 ════════════════════
 
-<img width="502" height="707" alt="Image" src="https://github.com/user-attachments/assets/ffe61c83-5dae-4d68-8c7e-b3087d34dead" />
+<img width="720" height="713" alt="Image" src="https://github.com/user-attachments/assets/b3c6ca54-4a2b-406d-9b48-3531d1693cc8" />
 
-" 𝘼𝙡𝙡 𝙄 𝙚𝙫𝙚𝙧 𝙬𝙖𝙣𝙩𝙚𝙙 𝙬𝙖𝙨 𝙩𝙤 𝗿𝗲𝘂𝗻𝗶𝘁𝗲 𝙬𝙞𝙩𝙝 𝗺𝘆 𝗼𝘄𝗻. 7 𝙮𝙚𝙖𝙧𝙨 𝙬𝙚'𝙫𝙚 𝘄𝗼𝗻𝗱𝗲𝗿𝗲𝗱, 𝙗𝙪𝙩 𝘁𝗼𝗱𝗮𝘆 𝙮𝙤𝙪'𝙧𝙚 𝗻𝗼𝘁 𝗮𝗹𝗼𝗻𝗲. "
+" 𝘼 𝙬𝙖𝙧𝙧𝙞𝙤𝙧'𝙨 𝙞𝙣𝙨𝙩𝙞𝙣𝙘𝙩𝙨 𝙢𝙪𝙨𝙩 𝙗𝙚 𝙖𝙨 𝙨𝙝𝙖𝙧𝙥 𝙖𝙨 𝙖𝙣 𝙖𝙧𝙧𝙤𝙬𝙨. "
