@@ -14,7 +14,11 @@
 
 ᴏᴛʜᴇʀ ᴠᴏx ꜰɪᴄᴛᴋɪɴꜱ/ʏᴜᴍᴇꜱ ʜᴇᴀᴠɪʟʏ ꜱᴛʀɪᴄᴛ ᴅɴɪᴜɪᴅ . ᴡɪʟʟ ʙʟᴏᴄᴋ ᴏᴛʜᴇʀᴡɪꜱᴇ
 
-ᴘᴏɴʏᴛᴏᴡɴꜱ ᴠᴏx ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ @pt-walk-of-fame @pt-contributors @pt-hall-of-media @fans-town @title-town @pt-fashion @pt-of-awesomeness @ponychivements @cosplaytown
+ᴘᴏɴʏᴛᴏᴡɴꜱ ᴠᴏx ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-contributors](https://github.com/pt-contributers) [pt-hall-of-media](https://github.com/pt-hall-of-media) [title-town](https://github.com/title-town) [pt-fashion](https://github.com/pt-fashion) [pt-of-awesomeness](https://github.com/pt-of-awesomeness) [ponychivements](https://github.com/ponychievements) @cosplay-town !!!
+
+ᴠᴏx’ꜱ ʙɪɢɢᴇꜱᴛ ꜰᴀɴ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ [fans-town](https://github.com/fans-town) !!!
+
+ᴛʜᴇ ᴏꜰꜰɪᴄɪᴀʟ "ꜰᴀᴛʜᴇʀ-ᴅᴀᴜɢʜᴛᴇʀ ᴅᴀɴᴄᴇ" ʙʏ ᴊᴊ ʜᴇʟʟᴇʀ ᴄᴏɴꜰɪʀᴍᴇᴅ ʙʏ ➜ [music-town](https://github.com/music-town) !!!
 
 ᴍɪɴᴏʀ . 18+ ᴅɴɪᴜɪᴅ . 15- ᴅɴɪ
 
