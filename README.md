@@ -1,6 +1,6 @@
-" 𝙋𝙧𝙤𝙩𝙚𝙘𝙩𝙞𝙣𝙜 𝙩𝙝𝙚 𝙜𝙤𝙤𝙙 𝘾𝙤𝙤𝙠𝙞𝙚𝙨 𝙞𝙣 𝙤𝙪𝙧 𝙠𝙞𝙣𝙜𝙙𝙤𝙢 𝙞𝙨 𝙢𝙮 𝙙𝙪𝙩𝙮. "
+" 𝙏𝙝𝙚𝙮'𝙫𝙚 𝙖𝙡𝙡 𝙗𝙚𝙚𝙣 𝙙𝙮𝙞𝙣𝙜 𝙛𝙤𝙧 𝙖 𝙡𝙞𝙩𝙩𝙡𝙚 𝙙𝙧𝙖𝙢𝙖. "
 
-<img width="720" height="418" alt="Image" src="https://github.com/user-attachments/assets/bc76e8e8-f6d6-4264-b5e4-ccaccd517e75" />
+<img width="720" height="497" alt="Image" src="https://github.com/user-attachments/assets/5cf981ef-1931-4738-bb92-5c8e24349ba2" />
 
 ════════════════════
 
@@ -74,6 +74,6 @@
 
 ════════════════════
 
-<img width="720" height="713" alt="Image" src="https://github.com/user-attachments/assets/b3c6ca54-4a2b-406d-9b48-3531d1693cc8" />
+<img width="717" height="956" alt="Image" src="https://github.com/user-attachments/assets/1850ffa9-e408-432a-bc1b-5bc291dd9581" />
 
-" 𝘼 𝙬𝙖𝙧𝙧𝙞𝙤𝙧'𝙨 𝙞𝙣𝙨𝙩𝙞𝙣𝙘𝙩𝙨 𝙢𝙪𝙨𝙩 𝙗𝙚 𝙖𝙨 𝙨𝙝𝙖𝙧𝙥 𝙖𝙨 𝙖𝙣 𝙖𝙧𝙧𝙤𝙬𝙨. "
+" 𝙎𝙝𝙤𝙬 𝙪𝙨 𝙨𝙤𝙢𝙚 𝙜𝙤𝙤𝙙 𝙚𝙣𝙩𝙚𝙧𝙩𝙖𝙞𝙣𝙢𝙚𝙣𝙩 ! "
