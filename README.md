@@ -1,6 +1,6 @@
-" 𝙏𝙝𝙚𝙮'𝙫𝙚 𝙖𝙡𝙡 𝙗𝙚𝙚𝙣 𝙙𝙮𝙞𝙣𝙜 𝙛𝙤𝙧 𝙖 𝙡𝙞𝙩𝙩𝙡𝙚 𝙙𝙧𝙖𝙢𝙖. "
+" 𝘽𝙚𝙛𝙤𝙧𝙚 𝙄 𝙩𝙖𝙠𝙚 𝙮𝙤𝙪𝙧 𝙡𝙞𝙛𝙚, 𝙄'𝙢 𝙜𝙤𝙞𝙣𝙜 𝙩𝙤 𝙩𝙚𝙖𝙧 𝙩𝙝𝙖𝙩 𝙤𝙩𝙝𝙚𝙧 𝙚𝙮𝙚 𝙤𝙪𝙩 𝙤𝙛 𝙮𝙤𝙪𝙧 𝙛𝙖𝙘𝙚. "
 
-<img width="720" height="497" alt="Image" src="https://github.com/user-attachments/assets/5cf981ef-1931-4738-bb92-5c8e24349ba2" />
+<img width="961" height="550" alt="Image" src="https://github.com/user-attachments/assets/0ade1d8c-179f-4ff5-b0d7-8734de455561" />
 
 ════════════════════
 
@@ -74,6 +74,6 @@
 
 ════════════════════
 
-<img width="717" height="956" alt="Image" src="https://github.com/user-attachments/assets/1850ffa9-e408-432a-bc1b-5bc291dd9581" />
+<img width="720" height="399" alt="Image" src="https://github.com/user-attachments/assets/39f5f266-785a-4b7a-bdff-10bd907b287c" />
 
-" 𝙎𝙝𝙤𝙬 𝙪𝙨 𝙨𝙤𝙢𝙚 𝙜𝙤𝙤𝙙 𝙚𝙣𝙩𝙚𝙧𝙩𝙖𝙞𝙣𝙢𝙚𝙣𝙩 ! "
+" 𝙏𝙧𝙮 𝙞𝙩, 𝙗𝙞𝙩𝙘𝙝 ! "
