@@ -1,6 +1,6 @@
 " 𝙔𝙤𝙪'𝙧𝙚 𝙛𝙪𝙘𝙠𝙞𝙣𝙜 𝙟𝙤𝙠𝙞𝙣𝙜! 𝙇𝙤𝙤𝙠𝙨 𝙡𝙞𝙠𝙚 𝙬𝙚 𝙜𝙤𝙩 𝙤𝙪𝙧 𝙨𝙥𝙞𝙣, 𝙑. "
 
-<img width="961" height="550" alt="Image" src="https://github.com/user-attachments/assets/0ade1d8c-179f-4ff5-b0d7-8734de455561" />
+<img width="720" height="501" alt="Image" src="https://github.com/user-attachments/assets/2d236015-7e56-4bf9-aec1-bbd701665477" />
 
 ════════════════════
 
@@ -82,6 +82,6 @@
 
 ════════════════════
 
-<img width="720" height="399" alt="Image" src="https://github.com/user-attachments/assets/39f5f266-785a-4b7a-bdff-10bd907b287c" />
+<img width="720" height="960" alt="Image" src="https://github.com/user-attachments/assets/a117b02c-30ce-4285-a28d-ff297d30e3f6" />
 
 " 𝙎𝙚𝙚𝙢𝙨 𝙩𝙤 𝙢𝙚 𝙣𝙤𝙩 𝙚𝙫𝙚𝙧𝙮𝙤𝙣𝙚 𝙞𝙨 𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙝𝙚𝙧𝙚 𝙖𝙩 𝙩𝙝𝙚 𝙃𝙖𝙯𝙗𝙞𝙣 𝙃𝙤𝙩𝙚𝙡. "
